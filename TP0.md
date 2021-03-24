@@ -16,4 +16,5 @@
 - Escuchar musica (de todo un poco, pero mis bandas favoritas son: Jungle, RHCP y Coldplay)
 - Mirar series y peliculas (Pelicula favorita: Insterestelar, Serie favorita: Lost)
 - Tocar la guitarra
+- Mirar futbol y UFC
 - Aprender sobre tecnología y programación
