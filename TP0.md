@@ -14,5 +14,6 @@
 ### Hoobies
 
 - Escuchar musica
-- Mirar series y peliculas
+- Mirar series y peliculas (Pelicula favorita: Insterestelar, Serie favorita: Lost)
+- Tocar la guitarra
 - Aprender sobre tecnología y programación
